@@ -58,6 +58,7 @@
 ## 🌐 Conecta conmigo
 
 💼 LinkedIn: https://www.linkedin.com/in/daniel-%C3%A1lvarez-molina-61799a116/
+
 📧 Email: danielaeroportuaria1@gmail.com
 🐙 GitHub
 
